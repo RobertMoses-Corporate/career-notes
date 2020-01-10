@@ -49,6 +49,8 @@ Rescheduling Interviews
 
 - https://www.themuse.com/advice/email-template-reschedule-job-interview
 
+- https://thecorporatecon.com/how-to-cancel-an-interview/
+
 
 ###############################
 Accept OR Decline a Job Offer
@@ -65,6 +67,8 @@ Accept OR Decline a Job Offer
 
 - https://content.wisestep.com/how-to-get-a-job-offer-back-after-declining-it-top-tips/
 
+- https://thecorporatecon.com/how-to-decline-job-offer-due-to-salary/
+
 
 ####################################
 Respond to a failed job interview
@@ -72,6 +76,8 @@ Respond to a failed job interview
 - https://www.thebalance.com/what-to-do-if-you-ve-blown-a-job-interview-2061103
    
 - https://workplace.stackexchange.com/questions/104930/re-application-process-post-rejection
+
+- https://thecorporatecon.com/failed-a-phone-interview/
 
 
 ###############################
