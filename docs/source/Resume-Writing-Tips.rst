@@ -23,6 +23,8 @@ The Basics
 
 - http://joshgwin.com/15-ways-to-upgrade-your-linkedin-profile/
 
+- https://thecorporatecon.com/
+
 
 #########################
 Certifications on Resume
